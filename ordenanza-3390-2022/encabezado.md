@@ -1,0 +1,21 @@
+Ordenanza Nº3390/22
+Ordenanza Nº 3390/22
+Arrecifes, 22/06/2022
+VISTO:
+La muestra de Educación, Arte, ciencia y Tecnología que se desarrolla año a año, donde participan todos los establecimientos educativos de la provincia de Buenos Aires y teniendo en cuenta la participación que tienen las Instituciones educativas de nuestra ciudad en la misma, tanto a nivel inicial, primario, secundario y superior destacando que en la muestra del año 2021 alumnas y alumnos del nivel primario (Primer grado-año) de la Escuela Nro. 18 “Remedios de Escalada” en la categoría Ciencias Naturales, quedaron seleccionados para representar a la región 12 en instancia Provincial, y:
+CONSIDERANDO:
+La importancia que tiene esta muestra de educación, arte, ciencia y tecnología para la formación de niñas y niños, adolescentes, adultos y adultos mayores, como así también en la concientización que surge a través de la misma para la sociedad en su extenso conjunto.
+Es de suma relevancia darle el valor institucional que el proyecto ha generado no solo en sus creadores sino también hacia la comunidad educativa de la ciudad y la necesidad de que se comparta el mismo hacia todos los vecinos y vecinas.
+Debiendo dar a conocer que el proyecto “Explorando los materiales”, cuyo principal objetivo, en primera instancia, es que las y los estudiantes comiencen a reconocer la presencia de diferentes materiales en los objetos que nos rodean. Desarrollando actividades de observación, registro de dibujos realistas, incorporación de vocabulario científico y definiciones, exploración de diferentes materiales, identificación parcial de propiedades entre otras.-
+Sin lugar a dudas el proyecto trascendió el aula e impacto en la comunidad educativa, mediante la realización de ECOBOTELLAS, que persiguen el doble propósito de concientizar sobre el cuidado del ambiente y reciclar plástico en la escuela.-
+La finalidad es juntar 40 toneladas de plástico, para realizar un intercambio con la fábrica “4e Madera Plástica” y la fundación “Botella Amor” por un juego reciclado que será donado para una plaza pública. (FERIA DE CIENCIAS 2021 https://acte.abc.gob.ar/).-
+Por lo expuesto dada la relevancia y el impacto que ha generado el proyecto y la necesidad expresada por docentes y alumnos de la escuela Nro. 18 “Remedios de Escalada”, en darle difusión al mismo en toda la ciudad, teniendo en cuenta que posee un contenido enriquecedor, educativo, que sirve para concientizar a las y los ciudadanos sobre el cuidado del medio ambiente y la salud de la población en general.-
+Es necesario que el D.E.M. provea de un espacio para el almacenamiento de las ECOBOTELLAS y de transporte idóneo para el traslado de las mismas desde la escuela Nº 18 “Remedios de Escalada” a dicho depósito.-
+Es indispensable y no admite demora la participación del estado Municipal en la cuestión en análisis, ya que el proyecto se encuentra en ejecución y las y los alumnos creadores del mismo quieren ver reflejada su iniciativa y entusiasmo en el resultado del mismo, que es juntar las 40 toneladas de Ecobotellas para obtener el juego de plaza.-
+Además los alumnos saldrán de la escuela a la sociedad mostrando el proyecto, con un propósito educativo de cuidado del medio ambiente, demostrando lo que han aprendido para trasladar todo su conocimiento a las vecinas y vecinos de Arrecifes y también para ver realizado y finalizado su proyecto.-
+Al mismo tiempo se hace saber que no es seguro el acopio en la escuela de las ECOBOTELLAS ya que puede generar focos de suciedad, malos olores, enfermedades, etc.-
+Es sabido que corresponde al Concejo Deliberante realizar ordenanzas en materia de ornato, sanidad, asistencia social, seguridad, moralidad, cultura, educación, protección, fomento, conservación y demás estimaciones encuadradas en su competencia constitucional que coordinen con las atribuciones provinciales y nacionales tal como lo dispone el Artículo 25° de la ley Orgánica de las Municipalidades (Decreto Ley 6769/58).-
+Así mismo son aplicables a la presente ordenanza las disposiciones de los artículos 27° inc. 8 y 28, y 28 inc. 8, de la ley Orgánica de las Municipalidades (Decreto Ley 6769/58).-
+Por lo expuesto:
+El Honorable Concejo Deliberante de Arrecifes, aprueba por unanimidad, en general y en particular siguiente:
+ORDENANZA
