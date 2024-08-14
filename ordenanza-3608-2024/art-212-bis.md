@@ -1,0 +1,12 @@
+Artículo 212º Bis:Establecese un sistema de exención total de las tasas de alumbrado, limpieza y conservación de la vía pública; servicios sanitarios y de la contribución correspondiente al Fondo de Fortalecimiento de la Salud Pública, para los frentistas titulares de dominio en cuyo grupo familiar algunos de sus miembros posean Certificado de Discapacidad, conforme a lo siguiente.-
+Los beneficiarios para acogerse al sistema de exención que se implementa, deberán cumplir los siguientes requisitos:
+Poseer un solo inmueble edificado y ser éste su residencia permanente.
+No percibir él titular y único habitante del dominio ingresos superiores a una vez y media (1,5) el haber mínimo garantizado a nivel nacional, establecido por la Administración Nacional de la Seguridad Social. En caso de existir más de un titular y/o convivientes, sus ingresos deberán ser inferiores a dos veces y media (2,5) el haber mínimo previsional.
+Los contribuyentes, para acogerse al sistema, deberán hacer la presentación respectiva ante la Oficina de Rentas de la Municipalidad de Arrecifes formulando una Declaración Jurada anual aportando los siguientes datos:
+Título de propiedad que lo acredite como titular del dominio, al presentante, su cónyuge y/o concubina y fotocopia del citado título que el Municipio procederá a certificar.
+Declaración Jurada de todos los datos personales de los componentes del grupo familiar. Esta Declaración Jurada deberá ser llenada y firmada por el titular de dominio.
+Ultimo recibo de cobro de la jubilación, pensión y/o recibo de sueldo del titular, su cónyuge y/o concubina.
+Declaración Jurada manifestando que ni los titulares del dominio, ni ningún otro integrante del grupo familiar conviviente son propietarios de inmueble alguno en el país y/o en el exterior.
+No poseer el solicitante automotor con una antigüedad menor a los 5 años respecto al año en curso.
+El personal de Acción Social deberá verificar y certificar la veracidad de la declaración jurada. -
+Aquellos titulares de dominio y/o grupos familiares convivientes que perciban ingresos superiores a dos veces y media (2,5) y hasta cuatro (4) veces el haber mínimo jubilatorio, gozaran de un descuento del 30% en el importe de las tasas mencionadas en el Art. 175º de la presente ordenanza. Para acceder al beneficio dispuesto el contribuyente no deberá adeudar tributos municipales al momento de la solicitud respectiva.

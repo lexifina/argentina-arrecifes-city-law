@@ -1,0 +1,1 @@
+Artículo 53º: Se delega en el Departamento Ejecutivo la facultad de acordar y cerrar la deuda en materia tributaria que los Contribuyentes hayan generado por la instalación y utilización de Estructura Soporte, Equipos, Postes y Elementos complementarios.

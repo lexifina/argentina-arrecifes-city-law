@@ -1,0 +1,1 @@
+Artículo 47º:Una vez que se otorgue el uso conforme municipal y final de obra previsto en el artículo 180º de la Ordenanza Fiscal, la municipalidad estará en condiciones de liquidar esta Tasa. La falta de pago será causal de revocación de la autorización y/o multas y/o desmantelamiento de la Estructuras Soporte, por cuenta y orden de la Propietaria o Usufructuaria.

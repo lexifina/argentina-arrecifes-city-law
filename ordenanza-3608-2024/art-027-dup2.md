@@ -1,0 +1,1 @@
+Artículo 27: Establézcase como importe mínimo a abonar en concepto de Patentes de Rodados el importe de Pesos Mil cuatrocientos veintitrés ($: 1.423,00) desde el 01/01/2024 al 31/03/2024, Pesos Mil Seiscientos treinta y ocho ($: 1.638,00) desde el 01/04/2024 al 30/06/2024 y Pesos Mil Ochocientos setenta y ocho ($: 1.878,00) desde el 01/07/2024 al 31/12/2024.-

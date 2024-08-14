@@ -1,0 +1,1 @@
+Artículo 54º:Ante la notificación fehaciente por la irregularidad del estado de una estructura debidamente identificada, el o los responsables tendrán un plazo de 7 (siete) días para su arreglo o sustitución, pasado dicho plazo y no siendo reparado el daño, tendrán una multa equivalente de hasta 10 veces el valor de la tasa especificada en el Articulo 50.

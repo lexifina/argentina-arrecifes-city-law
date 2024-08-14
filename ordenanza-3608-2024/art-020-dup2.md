@@ -1,0 +1,1 @@
+Artículo 20º: Los derechos a los espectáculos públicos a que se refiere el Libro Segundo - Título XII de la Ordenanza Fiscal, quedan fijados conformes a los importes que se determinan en el presente Título.-
