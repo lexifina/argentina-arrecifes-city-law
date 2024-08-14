@@ -1,0 +1,16 @@
+Ordenanza Nº3603/24
+Ordenanza Nº 3603/24
+Arrecifes, 11/07/2024
+VISTO:
+Los convenios celebrados entre la Municipalidad de Arrecifes y el Dr. Sergio Daniel Casado, en fecha 29 de diciembre de 2023 y, entre la referida Municipalidad y el Dr. Sergio Daniel Casado, la Dra. Natalia Díaz, y el Dr. Esteban Alberto Piugduvi, con la intervención de la Asociación de Anestesiología del Norte de la Provincia de Buenos Aires, en fecha 16 de diciembre de 2023, los cuales dieron lugar a la formación del Expediente Administrativo Nro. 220.827/24 y;
+CONSIDERANDO:
+Que, mediante los artículos 140º y 141º del Reglamento de Contabilidad se regula el reconocimiento de deuda de ejercicios anteriores no contabilizados, indicando que debe tramitarse el expediente para comprobar la legitimidad del derecho invocado por el acreedor.-
+Que de acuerdo a lo expuesto precedentemente se ha dado origen al Expediente Municipal Nro. 220.827/24 de fecha 01 de marzo de 2024, de reconocimiento de deuda, dando cumplimiento a lo dispuesto mediante la normativa antes descripta.-
+Que, habiendo cumplido con los requisitos exigidos en los artículos de referencia, debe solicitarse autorización al Honorable Concejo Deliberante, en virtud de que la deuda que se reclama involucra ejercicios anteriores.-
+Que, se han adjuntado al expediente citado todos los elementos de prueba existentes en la Comuna.-
+Que, el primero de los mencionados convenios al que se hace referencia en el VISTO, fue suscripto entre la Municipalidad de Arrecifes y el Dr. Sergio Daniel Casado, dentro del marco de lo establecido por el Decreto Municipal 905/23, mediante el cual se regularizó una situación de hecho y se reconocieron los servicios brindados por el profesional entre el día 01 de diciembre y 15 de diciembre de 2023, por lo que este municipio adeuda la suma de Pesos Un Millón seiscientos veinte mil ($ 1.620.000,00) conforme la liquidación que se encuentra glosada en autos a fojas 9, autorizada por la Secretaria de Salud y Acción Social C.P. Nadia Vanina ZANZOTTERA.-
+Que, en el restante convenio celebrado, con vigencia desde el día 16 de diciembre y hasta el día 31 de diciembre de 2023, se regularizó provisoriamente el servicio de anestesiología del Hospital Municipal “Santa Francisca Romana” de Arrecifes, incorporando a los restantes profesionales mencionados y a la Asociación de Anestesiología del Norte de la Provincia de Buenos Aires, por el cual se originó una deuda que asciende a la suma de Pesos Cuatro millones cuatrocientos sesenta mil ($ 4.460.000,00) conforme la liquidación que se encuentra glosada en autos a fojas 8, autorizada por la Secretaria de Salud y Acción Social C.P. Nadia Vanina ZANZOTTERA.-
+Que, la Contadora Municipal, María de los Ángeles Peralta, ha tomado vista de las actuaciones administrativas de referencia a fojas 19, estimando que se ha dado cumplimiento a las disposiciones contenidas en los arts. 140 y141 del Reglamento de Contabilidad. –
+Que, se hace necesario contar con la norma administrativa correspondiente a fin de proceder a efectivizar el pago adeudado.-
+El Honorable Concejo Deliberante de Arrecifes, aprueba por unanimidad, en general y en particular la siguiente la siguiente:
+ORDENANZA
