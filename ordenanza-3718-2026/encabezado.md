@@ -1,0 +1,15 @@
+Ordenanza Nº3718/25
+Ordenanza Nº 3718/25
+Arrecifes, 10/07/2025
+VISTO:
+La presentación efectuada por el Sr. Alfredo Humberto BRUNELLO, D.N.I. 12.460.811, en fecha 29 de abril de 2025, en su carácter de presidente de LA GAUCHITA S.A., CUIT: 33-51894551-9, que diera lugar al Expediente Administrativo Nro. 247.776/2025, y;
+CONSIDERANDO:
+Que, mediante la mencionada presentación, el representante de la referida sociedad anónima, solicita el otorgamiento de la eximición del pago del Derecho de Construcción, conforme las disposiciones de la Ordenanza Fiscal e Impositiva Nro. 3.671/24.
+Que, asimismo, acompaña a las actuaciones de referencia copia del Estatuto de LA GAUCHITA S.A., copia del acta de designación de autoridades vigente y copia del D.N.I del solicitante, todo ello a los fines de acreditar el carácter invocado y la representación de la sociedad.
+Que, la obra proyectada, consiste en una nueva planta (nave industrial) de ampliación a la ya existente, que representa una mejora en la capacidad de producción de la empresa, un aumento de la nómina salarial, y un beneficio para las personas que trabajan directa e indirectamente con la misma, desarrollando un objeto afín a la explotación comercial de “La Gauchita”, orientado a la fabricación y comercialización de artículos de limpieza, con una amplia trayectoria dentro del partido de Arrecifes, con proyección nacional.
+Que, la mencionada ampliación se realizará sobre el inmueble ubicado en el Sector Industrial Planificado de Arrecifes, cuya nomenclatura catastral es Circ.: II; Sec.: B; Fr.: I; Ch.: 64, Parc.: 7 y 8, según plano 010-0000022-2013, Partidas Inmobiliarias 23862 y 23863, respectivamente, adjudicadas a LA GAUCHITA S.A. por Decreto Municipal 343/24 en los términos del artículo 3º de la Ordenanza Nro. 1.897/06.
+Que, en fecha 16 de mayo de 2025, previo al análisis de la solicitud y al estudio de los planos acompañados, el director de Obras Públicas, Privadas y Planeamiento de la Municipalidad de Arrecifes, Arq. German Cruz Acosta, solicita al Departamento Ejecutivo Municipal que elabore el proyecto de Ordenanza correspondiente a los fines de requerir la autorización pertinente del Honorable Concejo Deliberante, en un todo de acuerdo a lo dispuesto por la Ordenanza Municipal Nro. 3.671/24, en su Título VIII – Derecho de Construcción, del Libro Segundo, artículo 17° - Punto A – Inciso 6), a los fines de la exención tributaria referida.
+Que, el mencionado funcionario, con acierto, manifiesta que la eximición se deberá otorgar hasta el 31 de diciembre de 2025, conforme las prescripciones del artículo 40 del Decreto Ley 6769/58, y agrega, siempre y cuando no cambie su finalidad u objeto, por un plazo no menor de dos (2) años. Adunado a ello, debe estarse a la observancia de lo establecido en el Libro Segundo – Parte Especial - Título VIII DERECHO DE CONSTRUCCIÓN.
+Que, obra en el Expediente Administrativo 247.776/2025, dictamen emitido por el Asesor Letrado Municipal, Dr. Javier F. SAROME.
+El Honorable Concejo Deliberante de Arrecifes, aprueba por unanimidad, en general y en particular la siguiente:
+ORDENANZA
