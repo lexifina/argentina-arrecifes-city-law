@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-arrecifes",
+  "code": "AR-B-ARRECIFES",
+  "name": "Arrecifes",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-arrecifes-city-law",
+  "build": "built: municipal ordinances (206 ordinances, 206 versions) from https://sibom.slyt.gba.gob.ar/cities/5",
+  "language": "es",
+  "sources": 1
+}

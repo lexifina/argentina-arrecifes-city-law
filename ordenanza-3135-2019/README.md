@@ -1,0 +1,9 @@
+# Ordenanza 3135/2019: Autorizase al Departamento Ejecutivo Municipal a través del área correspondiente a disminuir la Cuenta contable (224100000) del pasivo consolidado “Convenio ESEBA Residual”, la suma de pesos dos millones trescientos oche
+
+Ordenanza 3135/2019 · 1 versions, from 2019-12-19 (latest in force: 2019-12-19) · <https://sibom.slyt.gba.gob.ar/bulletins/3007/contents/1407951>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
